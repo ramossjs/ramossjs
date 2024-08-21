@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ramossjs
-- 👀 I’m interested in college
+- 👀 I’m studying in college
 - 🌱 I’m currently learning software engineering
 - 📫 How to reach me: Ig: @ramoss.js
 
